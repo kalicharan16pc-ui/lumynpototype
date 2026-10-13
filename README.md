@@ -1,2 +1,2 @@
-# lumynpototype
-https://www.figma.com/design/GMcdWiTvJkrZb1EOG2IgjY/Lumyn?node-id=0-1&t=dPbyOFznZkOxn80x-1
+# lumyncasestudy
+https://www.behance.net/gallery/257020883/lumyn-app
